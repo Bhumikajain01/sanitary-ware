@@ -1,1 +1,1 @@
-# sanitary-ware-
+# sanitary-ware
